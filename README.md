@@ -1,10 +1,3 @@
-- 👋 Hi, I’m @Nee-ta
-- 👀 I’m interested in education,vaccine hesitancy,compliance,security,collaboration and AI translating data
-- 🌱 I’m currently learning everything through SELC,,Coursera,Google courses,webinars, voluntarily editing Google Maps, Facebook business pages, Google crowdsourcing and Data language translation. I am new at some things but I learn super quick when I am interested and I am interested in everything technology. lol
-- 💞️ I’m looking to collaborate,to assist with projects regarding the above interests and to be involved with other of similar interests.
-- 📫 How to reach me anitagingrich8@gmail.com or AnitaGingrich@protonmail.com
-
-<!---
-Nee-ta/Nee-ta is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Going forward on EVERYTHING 🤣
+I work fulltime, volunteer in different areas and take tons of courses in various fields. I am all over the map...I do not have a specific field. I have chosen general knowledge in many different areas, which provides me with the ability to interact and be involved with everyone, everywhere, in every sector, regardless of age, race, nationality, gender or social economic status. I am working on my leadership skills, among other things. I use my positive attitude to encourage and strengthen others to be their authentic self, do their best, progress not perfection, learn, grow and DO. To be strong, go forward, be kind, thoughtful, helpful and be supportive.
+ I love learning & technology.
