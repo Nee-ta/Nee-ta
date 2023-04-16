@@ -1,3 +1,15 @@
-Going forward on EVERYTHING 🤣
-I work fulltime, volunteer in different areas and take tons of courses in various fields. I am all over the map...I do not have a specific field. I have chosen general knowledge in many different areas, which provides me with the ability to interact and be involved with everyone, everywhere, in every sector, regardless of age, race, nationality, gender or social economic status. I am working on my leadership skills, among other things. I use my positive attitude to encourage and strengthen others to be their authentic self, do their best, progress not perfection, learn, grow and DO. To be strong, go forward, be kind, thoughtful, helpful and be supportive.
- I love learning & technology.
+Work: Beverage & Machine Line Production
+      (Sensory,Robotics & Machine Automation Technology)
+
+Volunteer: Project Manager/Collaberation (written articles,blogs,slides presentations), posted prominently on Linkedin
+           Women Techmaker Ambassador & Member
+           GDG
+           Google Maps (Local Guide)
+           AJG Quotes (Inspirational Quotes & Blogs)
+           Mentorship 
+
+Courses/Training: Digital Marketing (SELC Career College)
+                  Project Management (Google on Coursera)
+                  Cybersecurity-Foundations/Fundamentals (INFOSEC)
+                  Certified Public Improv Speaker (FLS Academy)
+                  *Trusted Web Accessibility Tester [Section 508-ANDI],(*In Training)
